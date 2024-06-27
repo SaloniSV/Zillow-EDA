@@ -1,4 +1,4 @@
-**Problem Statement **
+**Problem Statement**
 
 I am a real estate investor and would like to invest 6M dollars in the real estate market. I am particularly interested in single family homes or rental apartments unless you recommend other types of real estate which may return maximum profits. My interest is to buy properties, do the upgrades and then rent the properties, however I am also interested in blooming markets where if needed, I can sell the properties quickly. What part of the country should I invest in to receive maximum gains.
 
